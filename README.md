@@ -28,7 +28,7 @@ Here are some ideas to get you started:
   </tr>
 </table>
 
-- 📫 How to reach me **at https://www.linkedin.com/in/alerika/ or send me an email alerika@hotmail.com**
+- 📫 Reach me **at https://www.linkedin.com/in/alerika/ or send me an email: alerika@hotmail.com**
 
 ## 🔗 Connect with me
 <hr />
